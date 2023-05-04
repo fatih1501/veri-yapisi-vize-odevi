@@ -1,0 +1,1 @@
+# veri-yapisi-vize-odevi
